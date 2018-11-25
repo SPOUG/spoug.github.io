@@ -11,10 +11,10 @@ Der er sket rigtig meget i markedet siden Anders for næsten 11 år siden starte
 
 ## Hvem er i bestyrelse? 
 Efter en lang årrække hvor Anders har været promotor for at drive brugergruppen med hjælp fra flere ildsjæle i community, er det nu på tide at der bliver dannet en bestyrelse som officielt kan løfte en del af opgaver i brugergruppen. Bestyrelse består i dag af: 
-- Kate Ankær, Nykredit, (https://www.linkedin.com/in/kate-ankær-4912623/) 
-- Per Birk Olsen, Rigspolitiet, (https://www.linkedin.com/in/per-birk-olsen-9528254/) 
-- Niels Gregers Johansen, Nets, (https://www.linkedin.com/in/niels-gregers-johansen/) 
-- Anders Dissing, Dissing Consulting, (https://www.linkedin.com/in/andersdissing/) 
+- [Kate Ankær, Nykredit](https://www.linkedin.com/in/kate-ankær-4912623/) 
+- [Per Birk Olsen, Rigspolitiet](https://www.linkedin.com/in/per-birk-olsen-9528254/) 
+- [Niels Gregers Johansen, Nets](https://www.linkedin.com/in/niels-gregers-johansen/) 
+- [Anders Dissing, Dissing Consulting](https://www.linkedin.com/in/andersdissing/) 
 
 ## Vedtægter
 Du vil snart kunn læse brugergruppen vedtægter her ...
